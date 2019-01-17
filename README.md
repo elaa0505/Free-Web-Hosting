@@ -1,5 +1,5 @@
 # Free-Web-Hosting
-Absolultly free hosting Servies provider
+Absolutely Free
 
 Register now and get it all free:
 *** 1500 MB of disk space
